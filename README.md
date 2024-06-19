@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @pattap2456
-- 👀 I’m interested in food
+- 👀 I’m interested in crypto
 - 🌱 I’m currently learning crypto
-- 💞️ I’m looking to collaborate on travel
+- 💞️ I’m looking to collaborate on...
 - 📫 How to reach me 
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
